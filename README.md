@@ -1,8 +1,8 @@
 sou julia 
 estou na escola
-meu hobby e assistir filmes e series de ação,romance e MCU
+meu hobby é assistir filmes e series
 *******************************
-i'm julia
-i'm at school
-my hobby and watch action movies and series, romance and MCU
+i'm julia 
+i'm at school 
+my hobby and i watch action movies and series
 *******************************
